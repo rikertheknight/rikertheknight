@@ -1,0 +1,1 @@
+My name is Enrique Mendoza III. I am trying to learn some new skills to help a friend with his business idea. Thank you for reading. I will update this periodically as to keep everyone updated on my progress. GG
